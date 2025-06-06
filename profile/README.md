@@ -6,7 +6,7 @@ In an era where digital privacy is becoming a growing concern, XNXubd VPN Browse
 
 
 
-## [👉👉 Get XNXubd VPN Browser for PC](https://freesoftcr.com/dl)
+## [👉👉 Get XNXubd VPN Browser for PC](https://freesoftcr.com/dl/)
 
 
 
